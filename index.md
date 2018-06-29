@@ -1,6 +1,6 @@
 
 
-Annet geeft meditatie cursussen in Paterswolde.
+
 
 # MEDITATIE & Schilderen
 ## Tijd Voor Jezelf
