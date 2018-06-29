@@ -1,7 +1,4 @@
 
-
-
-
 # MEDITATIE & Schilderen
 ## Tijd Voor Jezelf
 
