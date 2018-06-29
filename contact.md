@@ -6,5 +6,5 @@ Annet van de Bank, Paterswolde
 Het schilderen gebruik ik om expressie te geven aan de meditatie. Kleur is hierbij belangrijk.
 
 
-annetmeditatie@outlook.com  
+[annetmeditatie@outlook.com](mailto:annetmeditatie@outlook.com)  
 tel: 0630730145
