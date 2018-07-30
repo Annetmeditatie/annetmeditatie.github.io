@@ -15,7 +15,9 @@
     <div class="wrapper">
     {% include navigation.html %}
       <header>
-        {% if site.logo %}
+        {% if page.logo %}
+          <img src="{{page.logo | relative_url}}" alt="Logo" />
+        {% elsif site.logo %}
           <img src="{{site.logo | relative_url}}" alt="Logo" />
         {% endif %}
 

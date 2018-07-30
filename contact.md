@@ -1,3 +1,6 @@
+---
+logo: img/serre.jpg
+---
 
 <img src="/img/annet.jpg" class="picture"/>  
 Annet van de Bank, Paterswolde
