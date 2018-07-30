@@ -8,5 +8,5 @@ Het geeft rust en ontspanning. Het kan helpen jezelf beter te leren kennen en je
 
 
 We zitten op een stoel in makkelijk zittende kleding.
-Na 1 of 2 meditaties schildert ieder zijn indruk in een korte schets. 
+Na 1 of 2 meditaties schildert ieder zijn indruk in een korte schets met krijt. 
 
