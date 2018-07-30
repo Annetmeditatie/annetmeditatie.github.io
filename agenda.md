@@ -1,6 +1,8 @@
 Het hele jaar door geef ik Meditatie en schilderen op ochtenden of avonden. Dit is in een reeks van 4 of 5 keer.
-het is mogelijk, in overleg  om 1x mee te doen
+Het is mogelijk, in overleg  om 1x mee te doen.
+
 Ook geef ik soms een hele dag Meditatie en schilderen.
+
 
 ### Agenda komende tijd
 
