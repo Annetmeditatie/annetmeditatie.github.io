@@ -17,12 +17,13 @@ h1, h2, h3, h4, h5, h6 {
 }
 
 p, ul, ol, table, pre, dl {
-  margin:0 0 20px;
+  margin: 10px 0 10px;
 }
 
-h1, h2, h3 {
+h1, h2 {
   text-align: center;
   line-height:1.1;
+  margin-bottom: 30px;
 }
 
 h1 {
@@ -31,6 +32,10 @@ h1 {
 
 h2 {
   color:#393939;
+}
+
+h3 {
+    margin: 30px 0 0px;
 }
 
 h3, h4, h5, h6 {
@@ -193,7 +198,7 @@ body {
 }
 
 section p {
-    margin-top: 40px;
+    margin: 20px 0px;
 }
 
 footer p {
