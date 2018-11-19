@@ -5,13 +5,7 @@ Ook geef ik soms een hele dag Meditatie en schilderen.
 
 ### Agenda komende tijd
 
-woensdag 5, 12, 19 en donderdag 27 september
-van 10-12.00 of van 20-22.00 uur;
-4x voor 60 euro
-
-zondag 21 oktober van 10-16.00 uur
-met lunch voor 50 euro
-
-woensdag 31 oktober, 7, 14, 21 november
-van 10-12.00 of van 20-22.00 uur;
-4x voor 60 euro
+Woensdagochtend van 10-12.00 uur  
+9, 16, 23, 30 januari,6,13 en 20 februari  
+Donderdagochtend van 10-12.00 uur Nieuwe groep  
+10,17, 24 en 31 januari
