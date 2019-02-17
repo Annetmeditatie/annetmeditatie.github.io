@@ -6,14 +6,15 @@ Ook geef ik soms een hele dag Meditatie en schilderen.
 ### Agenda komende tijd
 
 Woensdagochtend van 10-12.00 uur  
-20,27 maart en 10,17 en 24 april
+20, 27 maart en 10, 17 en 24 april
 
 Donderdagochtend van 10-12.00 uur  
-11,18 en 25 april  
+11, 18 en 25 april  
 
-in de maand mei niet
+in de maand mei niet 
+
 in juni komt weer een nieuwe reeks op wo en do  
 verder in september en in november van 2019  
    
- eventuele andere dagen kunnen hiernog bij komen
+ eventuele andere dagen kunnen hier nog bij komen
 
