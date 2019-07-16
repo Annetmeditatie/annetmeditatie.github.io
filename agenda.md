@@ -6,13 +6,17 @@ Ook geef ik soms een hele dag Meditatie en schilderen.
 ### Agenda komende tijd
 
 Woensdagochtend van 10-12.00 uur  
-5, 12, 19 en 26 juni
+4, 11, 18 en 25 september
 
 Donderdagochtend van 10-12.00 uur  
-6, 13, 20 en 27 juni  
+5, 12, 19 en 26 september  
+
+Ziekte en ongemak
+Donderdagochtend van 10.-12.00 uur
+24 en 31 oktober
 
  
-verder in september en in november van 2019  
+verder  in november  2019  
    
  eventuele andere dagen kunnen hier nog bij komen
 
