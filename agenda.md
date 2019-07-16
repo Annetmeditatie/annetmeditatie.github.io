@@ -11,7 +11,8 @@ Woensdagochtend van 10-12.00 uur
 Donderdagochtend van 10-12.00 uur  
 5, 12, 19 en 26 september  
 
-Ziekte en ongemak
+Ziekte en ongemak  
+
 Donderdagochtend van 10.-12.00 uur
 24 en 31 oktober
 
