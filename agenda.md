@@ -5,18 +5,18 @@ Ook geef ik soms een hele dag Meditatie en schilderen.
 
 ### Agenda komende tijd
 
-Woensdagochtend van 10-12.00 uur  
-4, 11, 18 en 25 september
-
-Donderdagochtend van 10-12.00 uur  
-5, 12, 19 en 26 september  
-
 Themadagen: Ziekte en ongemak  
 Donderdagochtend van 10.-12.00 uur  
 24 en 31 oktober
 
- 
-verder  in november  2019  
-   
- eventuele andere dagen kunnen hier nog bij komen
+in november   
+Woensdagochtend van 10-12.00 uur  
+6, 13, 20 en 27 november
+
+Donderdagochtend van 10-12.00 uur  
+7, 14, 21 en 28 november
+  
+In januari volgende reeksen
+eventuele andere dagen kunnen hier nog bij komen
+
 
