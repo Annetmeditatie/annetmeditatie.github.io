@@ -11,8 +11,11 @@ tel: 0630730145
 
 Annet van de Bank, Paterswolde
 
-"In 2005 heb ik voor het eerst kennisgemaakt met meditatie. Ik ben het altijd blijven doen, het is een verrijking."
 
-Het schilderen gebruik ik om expressie te geven aan de meditatie. Kleur is hierbij belangrijk.
 
+Mijn naam is Annet van de Bank en sinds twee jaar geef ik cursus in meditatie & schilderen
+bij ons thuis in Paterswolde. In 2005 ben ik begonnen met een opleiding voor mediteren. Ik
+mediteer vrijwel dagelijks en volg regelmatig themaweekenden. Dit blijft mij verrijken. Van
+het begin af aan maakte ik tekeningen van hetgeen zich tijdens mijn meditaties manifesteerde.
+Dit helpt om de ervaringen te verwerken en meer eigen te maken.
 
