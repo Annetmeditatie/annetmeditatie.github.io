@@ -1,5 +1,4 @@
 Het hele jaar door geef ik Meditatie en schilderen op ochtenden of avonden. Dit gebeurt in een reeks van 4 of 5 keer.  
-
 Het is ook mogelijk, in overleg,  om 1x op proef te komen.  
 
 
