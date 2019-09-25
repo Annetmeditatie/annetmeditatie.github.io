@@ -11,7 +11,8 @@ Meditatie geeft rust en ontspanning en het helpt jezelf beter te leren kennen en
 Het mediteren gaat langs de energiepunten op of bij het lichaam.  Dat wil zeggen dat je gedurende de meditatie je eerst concentreert op die punten. Na 1 of 2 meditaties maken we in 10 minuten een tekening  met krijt(olie of water). In deze tekening geven we expressie aan onze meditatie. Het accent ligt op het mediteren. Je hoeft hier dus geen tekenervaring voor te hebben. Het is jouw beleving, het is jouw tekening.
  
   
-
+  
+  
 
 SPECIAAL THEMA : ZIEKTE EN ONGEMAK  
 Wanneer je door ziekte niet meer kan doen wat je wilt doen, wat je gewoon bent te doen, raak je verstoord.  
