@@ -11,6 +11,7 @@ Het mediteren gaat langs de energiepunten op of bij het lichaam.  Dat wil zeggen
  
   
   
+  
 SPECIAAL THEMA : ZIEKTE EN ONGEMAK  
 Wanneer je door ziekte niet meer kan doen wat je wilt doen, wat je gewoon bent te doen, raak je verstoord.  
 Vaak wil je er helemaal niet aan denken dat je iets niet kan of  je kan aan niets anders denken. 
