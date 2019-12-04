@@ -6,8 +6,8 @@ Het is ook mogelijk, in overleg,  om 1x op proef te komen.
 ### Agenda  :  
 
 Januari, februari :  
-Op woensdagochtend van 10.00-12.30  uur
-15, 22, 29 januari en 5 febru  
+Op woensdagochtend van 10.00-12.30  uur  
+15, 22, 29  januari en 5 februari
 
 op donderdagochtend van  10.00-12.30 uur  
 16, 23, 30 januari en 6  februari
