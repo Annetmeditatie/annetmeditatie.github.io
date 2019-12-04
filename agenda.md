@@ -10,7 +10,7 @@ Op woensdagochtend van 10.00-12.30  uur
 15, 22, 29 januari en 5 febru  
 
 op donderdagochtend van  10.00-12.30 uur  
-16, 23, 30 januari en 6 februari  
+16, 23, 30 januari en 6  februari
 
 op woensdagavond van 19.30-22.00 uur  
 op 15, 22, 29 en 5 februari
