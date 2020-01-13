@@ -22,5 +22,5 @@ COACHING :
 Er kunnen vragen zijn, herinneringen bovenkomen of nieuwe inzichten. Het is mogelijk om daar dieper op in te gaan in een 1 op 1  gesprek.  
  
  
- WORKSHOP :
+ WORKSHOP :  
  Het is ook mogelijk op een andere locatie een workshop te organiseren.
