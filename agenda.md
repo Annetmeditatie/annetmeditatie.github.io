@@ -20,7 +20,7 @@ op woensdagochtend van 10.00-12.30 uur
 
 Themadagen: Ziekte en ongemak  
 Op woensdagochtend van 10.00-12.30 uur  
-omstreeks februari, maart
+19, 26 februari en 4 maart
 
 Volgende reeksen in maartapril ;juni ; september en november  
    
