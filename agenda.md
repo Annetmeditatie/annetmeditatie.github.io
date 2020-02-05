@@ -12,7 +12,6 @@ Op woensdagochtend van 10.00-12.30 uur
 19, 26 februari en 4 maart  
 
 reeks van 4 X : 
-
 op  donderdagochtend van 10.00-12.30 uur  
 5, 12, 19, 26 maart   
 op woensdagochtend  van  10.00-12.30 uur  
