@@ -14,8 +14,8 @@ Op woensdagochtend van 10.00-12.30 uur
 reeks van 4 X   
 op donderdagochtend van 10.00-12.30 uur  
 5, 12, 19, 26 maart  
-op woensdagochtend van 10.00-12.30 uur
-11, 18, 25  maart en  1 april  
+op woensdagochtend van 10.00-12.30 uur  
+11, 18, 25 maart en 1 april
 
 Volgende reeksen in mei, juni, september en november  
    
