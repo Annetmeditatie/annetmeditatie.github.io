@@ -9,6 +9,7 @@ woensdagochtend 1, 8, en 15 juli van 10.00 uur
 tot 12.30
 
 of donderdagochtend 2, 9 en 16 juli van 10.00 uur tot 12.30
+
 60 euro 
  
 Volgende reeksen in september en november
