@@ -5,18 +5,13 @@ Het is ook mogelijk, in overleg,  om 1x op proef te komen.
 
 ### Agenda  :    
  
-reeks van 4 X   
-op donderdagochtend van 10.00-12.30 uur  
-5, 12, 19, 26 maart  
-op woensdagochtend van 10.00-12.30 uur  
-11, 18, 25 maart en 1 april  
+woensdagochtend 1, 8, en 15 juli van 10.00 uur
+tot 12.30
+donderdagochtend 2, 9 en 16 juli van 10.00 uur tot 12.30
+
+60 euro 
  
- Themadagen: Ziekte en ongemak  
-Op woensdagochtend van 10.00-12.30 uur  
-22, 29 april en 6 mei 
-
-
-Volgende reeksen in juni, september en november  
+Volgende reeksen in september en november
    
 
 
