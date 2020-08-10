@@ -19,8 +19,9 @@ van 10.00 uur tot 12.30
 Volgende reeksen in november en januari  
 
 
-Thema`s : 2x gezondheid, ziekte en ongemak 14 en 21 oktober  
-  
+Thema`s : 2x gezondheid, ziekte en ongemak 14 en 21 oktober    
+
+  1x midwinter in december
          
    
 
