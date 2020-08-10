@@ -21,7 +21,7 @@ Volgende reeksen in november en januari
 
 Thema`s : 2x gezondheid, ziekte en ongemak 14 en 21 oktober  
   
-          1x midwinter in december
+         
    
 
 
