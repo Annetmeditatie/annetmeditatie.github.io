@@ -14,8 +14,9 @@ of 4x donderdagochtend 17, 24 september 1 en 8 oktober van 10.00 uur tot 12.30
  
 Volgende reeksen in november en januari
 
-Thema : 2x ziekte en ongemak 14 en 21 oktober  
-        1x midwinter  in december
+Thema`s : 2x ziekte en ongemak 14 en 21 oktober   
+
+          1x midwinter  in december
    
 
 
