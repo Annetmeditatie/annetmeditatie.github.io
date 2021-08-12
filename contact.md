@@ -13,7 +13,7 @@ Annet van de Bank, Paterswolde
 
 
 
-Mijn naam is Annet van de Bank en sinds drie jaar geef ik de cursus Meditatie & schilderen in Paterswolde.  
+Mijn naam is Annet van de Bank en ruim vier jaar geef ik de cursus Meditatie & schilderen in Paterswolde.  
 In 2005 ben ik begonnen met een opleiding voor mediteren. Ik mediteer vrijwel dagelijks en volg regelmatig themaweekenden. Dit blijft mij verrijken. Van het begin af aan maakte ik tekeningen van hetgeen zich tijdens mijn meditaties manifesteerde.
 Dit helpt om de ervaringen te verwerken en meer eigen te maken.
 
