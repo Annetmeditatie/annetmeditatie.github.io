@@ -5,21 +5,23 @@ Het is ook mogelijk, in overleg,  om 1x op proef te komen.
 
 ### Agenda  :   
 
- 
-4x woensdagochtend 8, 15, 22 en 29 september    
+Thema`s : 2x gezondheid, ziekte en ongemak op 7 en 14  oktober, met name ook voor beginners
+
+4x woensdagochtend 3, 10, 17 en 24 november    
 
 van 10.00 uur tot 12.30
 
-of 4x donderdagochtend 9, 16, 23 en 30 september  
+of 4x donderdagochtend 4, 11, 18 en 25 november  
 
 van 10.00 uur tot 12.30
 
-80 euro   
+80 euro  
+  
  
-Volgende reeksen in november en januari  
+Volgende reeksen in januari  
 
 
-Thema`s : 2x gezondheid, ziekte en ongemak in  oktober, met name ook voor beginners    
+    
 
   
          
