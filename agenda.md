@@ -18,7 +18,7 @@ van 10.00 uur tot 12.30
 80 euro  
   
  
-Volgende reeksen in maart 
+Volgende reeksen in maart 2022
 
 4x woensdagochtend 9, 16, 23 en 30 maart
 van 10.00 tot 12.30 uur
