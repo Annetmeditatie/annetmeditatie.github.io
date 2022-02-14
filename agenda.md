@@ -19,7 +19,7 @@ op 10, 17, 24 en 31 maart
 van 20.00 tot 22.00 uur
 
 daarna 4x eind april, begin mei en vervolgens
-4x eind juni,begin juli 2022
+4x eind juni, begin juli 2022
 
 
 
