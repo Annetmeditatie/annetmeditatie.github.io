@@ -3,19 +3,7 @@ Het is ook mogelijk, in overleg,  om 1x op proef te komen.
 
 
 
-### Agenda  :   
-
-
-
-4x woensdagochtend 12, 19, 26 januari en 2 februari   
-
-van 10.00 uur tot 12.30
-
-of 4x donderdagochtend 13, 20 27 januari en 3 februari  
-
-van 10.00 uur tot 12.30
-
-80 euro  
+### Agenda  :  
   
  
 Volgende reeksen in maart 2022
@@ -29,6 +17,9 @@ van 10.00 tot 12.30 uur
 of donderdagavond alleen mediteren, dus zonder schilderen
 op 10, 17, 24 en 31 maart
 van 20.00 tot 22.00 uur
+
+daarna 4x eind april, begin mei en vervolgens
+4x eind juni,begin juli 2022
 
 
 
