@@ -17,6 +17,7 @@ van 10.00 tot 12.30 uur
 of donderdagavond alleen mediteren, dus zonder schilderen
 van 20.00 tot 22.00 uur
 
+
 daarna 
 4x woensdagochtend 15, 22, 29 juni en 6 juli
 van 10.00-12.30 uur
@@ -26,6 +27,7 @@ van 10.00-12.30 uur
 
 donderdagavond 16, 23, 30 juni en 7 juli
 van 20.00- 22.00 uur
+
 
 rond september de volgende reeks
 
