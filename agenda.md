@@ -8,30 +8,34 @@ Het is ook mogelijk, in overleg,  om 1x op proef te komen.
  
 Volgende reeks is
 
-4x woensdagochtend 20 april, 4, 11, 18 mei
+4x woensdagochtend 31 augustus, 7, 14 en 21 september
 van 10.00 tot 12.30 uur
 
-of donderdagochtend 21, 28 april, 5 en 12 mei
+of donderdagochtend 1, 8,15 en 22 september
 van 10.00 tot 12.30 uur
 
-of donderdagavond alleen mediteren, dus zonder schilderen
+of donderdagavond 1,8, 15, 22september 
 van 20.00 tot 22.00 uur
+alleen mediteren, dus zonder schilderen
 
 
 
-daarna 
-4x woensdagochtend 15, 22, 29 juni en 6 juli
+thema gezondheid, ziekte en ongemak 
+
+3x woensdagochtend 13, 20 en 27 oktober
+van 10.00-12.00 uur
+
+
+in november
+4x woensdagochtend 2, 9, 16 en 23 november
+van 10.00 -12.30 uur
+4x donderdagochtend 3, 10, 17 en 24 november
 van 10.00-12.30 uur
-
-4x donderdagochtend 16, 23, 30 juni en 7 juli
-van 10.00-12.30 uur
-
-donderdagavond 16, 23, 30 juni en 7 juli
-van 20.00- 22.00 uur
+4x donderdagavond 3, 10, 17 en 24 november
 
 
 
-rond september de volgende reeks
+In januari 2023 de volgende reeks
 
 
 
