@@ -31,7 +31,8 @@ van 10.00-12.00 uur
 
 
 
-NOVEMBER
+NOVEMBER  
+
 4x woensdagochtend 2, 9, 16 en 23 november
 van 10.00 -12.30 uur
 
