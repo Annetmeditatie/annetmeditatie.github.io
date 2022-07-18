@@ -1,4 +1,4 @@
-Het hele jaar door geef ik Meditatie en schilderen op ochtenden of avonden. Dit gebeurt in een reeks van 4 of 5 keer.  
+Het hele jaar door geef ik Meditatie en schilderen op ochtenden of avonden. Dit gebeurt in een reeks van 3 of 4 keer.  
 Het is ook mogelijk, in overleg,  om 1x op proef te komen.  
 
 
@@ -11,12 +11,13 @@ Volgende reeks is
 4x woensdagochtend 31 augustus, 7, 14 en 21 september
 van 10.00 tot 12.30 uur
 
-of donderdagochtend 1, 8,15 en 22 september
+of donderdagochtend 1, 8, 15 en 22 september
 van 10.00 tot 12.30 uur
 
-of donderdagavond 1,8, 15, 22september 
+of donderdagavond 1, 8, 15, 22 september 
 van 20.00 tot 22.00 uur
 alleen mediteren, dus zonder schilderen  
+
 
 
 
@@ -25,7 +26,8 @@ alleen mediteren, dus zonder schilderen
 thema GEZONDHEID, ZIEKTE EN ONGEMAK 
 
 3x woensdagochtend 13, 20 en 27 oktober
-van 10.00-12.00 uur
+van 10.00-12.00 uur  
+
 
 
 
@@ -37,6 +39,8 @@ van 10.00 -12.30 uur
 van 10.00-12.30 uur
 
 4x donderdagavond 3, 10, 17 en 24 november
+van 20.00-22.00 uur  
+
 
 
 
