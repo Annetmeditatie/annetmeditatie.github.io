@@ -20,18 +20,23 @@ alleen mediteren, dus zonder schilderen
 
 
 
-thema gezondheid, ziekte en ongemak 
+
+thema GEZONDHEID, ZIEKTE EN ONGEMAK 
 
 3x woensdagochtend 13, 20 en 27 oktober
 van 10.00-12.00 uur
 
 
+
 in november
 4x woensdagochtend 2, 9, 16 en 23 november
 van 10.00 -12.30 uur
+
 4x donderdagochtend 3, 10, 17 en 24 november
 van 10.00-12.30 uur
+
 4x donderdagavond 3, 10, 17 en 24 november
+
 
 
 
