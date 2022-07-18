@@ -16,7 +16,8 @@ van 10.00 tot 12.30 uur
 
 of donderdagavond 1,8, 15, 22september 
 van 20.00 tot 22.00 uur
-alleen mediteren, dus zonder schilderen
+alleen mediteren, dus zonder schilderen  
+
 
 
 
