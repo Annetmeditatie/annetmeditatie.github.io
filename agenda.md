@@ -25,7 +25,7 @@ alleen mediteren, dus zonder schilderen
 
 thema GEZONDHEID, ZIEKTE EN ONGEMAK 
 
-3x woensdagochtend 13, 20 en 27 oktober
+3x donderdagochtend 13, 20 en 27 oktober
 van 10.00-12.00 uur  
 
 
