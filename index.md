@@ -18,7 +18,7 @@ Vaak wil je er helemaal niet aan denken dat je iets niet kan of  je kan aan niet
 Deze korte cursus geeft een handreiking hoe je bewust met ziekte en ongemak om kan gaan. We doen meditatieoefenigen, ontspanningsoefeningen en we schilderen.  
  
   
-COACHING :  
+GESPREK:  
 Er kunnen vragen zijn, herinneringen bovenkomen of nieuwe inzichten. Het is mogelijk om daar dieper op in te gaan in een 1 op 1  gesprek.  
  
  
