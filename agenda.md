@@ -5,48 +5,25 @@ Het is ook mogelijk, in overleg,  om 1x op proef te komen.
 
 ### Agenda  :  
   
- 
-Volgende reeks is
+Op woensdagochtend  11, 18, 25 januari en 1 februari van 10- 12.30 uur
+Op donderdagochtend 12, 19, 26 januari en 2 februari van 10- 12.30 uur 
+op donderdagavond   12, 19, 26 januari en 2 februari van 20-22.00 uur  
 
-4x woensdagochtend 31 augustus, 7, 14 en 21 september
-van 10.00 tot 12.30 uur
 
-of donderdagochtend 1, 8, 15 en 22 september
-van 10.00 tot 12.30 uur
-
-of donderdagavond 1, 8, 15, 22 september 
-van 20.00 tot 22.00 uur
-alleen mediteren, dus zonder schilderen  
+In maart de volgende reeks
 
 
 
 
 
 
-thema GEZONDHEID, ZIEKTE EN ONGEMAK 
-
-3x donderdagochtend 13, 20 en 27 oktober
-van 10.00-12.00 uur  
-
-
-
-
-NOVEMBER  
-
-4x woensdagochtend 2, 9, 16 en 23 november
-van 10.00 -12.30 uur
-
-4x donderdagochtend 3, 10, 17 en 24 november
-van 10.00-12.30 uur
-
-4x donderdagavond 3, 10, 17 en 24 november
-van 20.00-22.00 uur  
 
 
 
 
 
-In januari 2023 de volgende reeks
+
+
 
 
 
