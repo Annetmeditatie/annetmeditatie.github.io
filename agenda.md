@@ -12,7 +12,9 @@ Op donderdagochtend 12, 19, 26 januari en 2 februari van 10- 12.30 uur
 op donderdagavond   12, 19, 26 januari en 2 februari van 20-22.00 uur  
 
 
-In maart de volgende reeks
+In maart de volgende reeks  
+
+In april mei stiltetuin meditatie
 
 
 
