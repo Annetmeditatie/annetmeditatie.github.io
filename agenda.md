@@ -3,18 +3,31 @@ Het is ook mogelijk, in overleg,  om 1x op proef te komen.
 
 
 
-### Agenda  :  
+### Agenda  : 
+
+In april 2x mediteren en boetseren
   
-Op woensdagochtend  11, 18, 25 januari en 1 februari van 10- 12.30 uur  
+Op woensdagochtend 12 en 19 april van 10- 12.30 uur  
 
-Op donderdagochtend 12, 19, 26 januari en 2 februari van 10- 12.30 uur  
-
-op donderdagavond   12, 19, 26 januari en 2 februari van 20-22.00 uur  
+Op donderdagochtend 13 en 20 april van 10- 12.30 uur  
 
 
-In maart de volgende reeks  
 
-In april mei stiltetuin meditatie
+in mei 2x mediteren in stiltetuin
+
+Op woensdag 3 en 10 mei van 10-12.30 uur
+Op donderdag 4 en 11 mei van 10- 12.30 uur
+
+In juni, juli meditatie en schilderen
+
+Op woensdag 21, 28 juni en 5, 12 juli van 10- 12.30 uur
+Op donderdag 22, 29 juni en 6, 13 juli
+
+
+
+In september de volgende reeks  
+
+
 
 
 
