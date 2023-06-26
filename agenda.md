@@ -18,6 +18,8 @@ Op donderdag 22, 29 juni en 6, 13 juli
 
 
 In SEPTEMBER de volgende reeks op woensdag en donderdagochtend
+
+
 Op dinsdagochtend begint er een nieuwe groep
 
 
