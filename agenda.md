@@ -6,21 +6,21 @@ Het is ook mogelijk, in overleg,  om 1x op proef te komen.
 ### Agenda  : 
 
 
-In JUNI, JULI meditatie en schilderen
+In September meditatie en schilderen 
 
-Op woensdag 21, 28 juni en 5, 12 juli van 10- 12.30 uur
+Op woensdag 6, 13, 20 en 27 september van 10- 12.30 uur
 
-Op donderdag 22, 29 juni en 6, 13 juli  
+Op donderdag 7, 14, 21 en 28 september van 10 -12.30 uur  
 
-
-
-
+Nieuwe groep op dinsdag van 10- 12.00 uur bij voldoende deelname
 
 
-In SEPTEMBER de volgende reeks op woensdag en donderdagochtend
 
 
-Op dinsdagochtend begint er een nieuwe groep
+In november de volgende reeks op dinsdag, woensdag en donderdagochtend
+
+
+
 
 
 
