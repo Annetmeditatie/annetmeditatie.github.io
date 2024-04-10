@@ -19,10 +19,6 @@ In september start een nieuwe groep op dinsdag van 10- 12.00 uur of donderdagavo
 
 
 
-In november de volgende reeks op dinsdag, woensdag en donderdagochtend
-
-
-
 
 
 
