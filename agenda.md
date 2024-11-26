@@ -6,15 +6,13 @@ Het is ook mogelijk, in overleg,  om 1x op proef te komen.
 ### Agenda  : 
 
 
-In april, mei meditatie en schilderen 
+In januari,februari meditatie en schilderen 
 
-Op woensdag 24 april, 1, 8, en 15 mei van 10- 12.30 uur
+Op donderdag 16, 23, 30 januari en 6 februari van 10- 12.30 uur
 
-Op donderdag 25 april, 2, 16 en 23 mei van 10 -12.30 uur    
+In april is de volgende reeks
 
-In juni juli is de volgende reeks
-
-In september start een nieuwe groep op dinsdag van 10- 12.00 uur of donderdagavond bij voldoende deelname
+Vanaf januari start er een nieuwe groep op woensdag van 10- 12.00 uur bij voldoende deelname
 
 
 
