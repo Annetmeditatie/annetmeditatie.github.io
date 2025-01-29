@@ -6,7 +6,7 @@ Het is ook mogelijk, in overleg,  om 1x op proef te komen.
 ### Agenda  : 
 
 
-In maat, april meditatie en schilderen 
+In maart, april meditatie en schilderen 
 
 Op donderdag 13, 20, 27 maart en 3 april van 10- 12.30 uur
 
