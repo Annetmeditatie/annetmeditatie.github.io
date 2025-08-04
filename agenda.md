@@ -6,13 +6,13 @@ Het is ook mogelijk, in overleg,  om 1x op proef te komen.
 ### Agenda  : 
 
 
-In mei meditatie en schilderen 
+In september meditatie en schilderen 
 
-Op woensdag 7,14,21 en 28 mei van 10-12.00uur
-Op donderdag 8,15 en 22 mei  van 10- 12.30 uur
+Op woensdag 3, 10, 17 en 24 september van 10-12.30 uur
+Op donderdag 4, 11, 18 en 25 september van 10- 12.30 uur
 
 
-In september start weer een nieuwe reeks
+In november start weer een nieuwe reeks
 
 
 
