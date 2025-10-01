@@ -8,7 +8,7 @@ een reeks van 4x kost 100 euro/lowbudget 80euro
 ### Agenda  : 
 
 
-In november meditatie en schilderen 
+In november Meditatie en schilderen 
 
 Op woensdag 5, 12, 19 en 26 november van 10-12.30 uur
 Op donderdag 6, 13, 20 en 27 november van 10- 12.30 uur
