@@ -8,13 +8,13 @@ een reeks van 4x kost 100 euro/lowbudget 80euro
 ### Agenda  : 
 
 
-In januari februari 2026 Meditatie en schilderen 
+In maart april 2026 Meditatie en schilderen 
 
-Op woensdag 21, 28 januari, 4 en 11 februari van 10-12.30 uur
-Op donderdag 22, 29 januari, 5 en 12 februari van 10- 12.30 uur
+Op woensdag 25 maart, 1, 8 en 15 april van 10-12.30 uur beginners, hier is nog plek 
+Op donderdag 26 maart, 2, 9 en 16 april van 10- 12.30 uur
 
 
-In maart, april 2026 start weer een nieuwe reeks
+In juni, juli 2026 start weer een nieuwe reeks, vervolgens in september
 
 
 
